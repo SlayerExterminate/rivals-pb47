@@ -1,4 +1,4 @@
-
+rivals Script no-ban offers the most advanced rivals Script, with no clip and infinite resources. Perfect for dominating any match.
 
 
 
